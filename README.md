@@ -1,2 +1,2 @@
 # Proyecto-final-Neurona
-Amo a mi grupo y a Oquendo <3
+Punto E realizado
